@@ -1,0 +1,2 @@
+# Akilli Reklam Uygulamasi
+ 
